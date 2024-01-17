@@ -1,10 +1,16 @@
-- 👋 Hi, I’m @Truthandlies_401107
-- 👀 I’m interested in You, If you are a girl...
-- 🌱 I’m currently learning Java, Python, C++, C and Git...
-- 💞️ I’m looking to collaborate on Anything if you are a girl...
-- 📫 How to reach me Just contact on my email 401107p@gmail.com...
-
-<!---
-Prabhat401107/Prabhat401107 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+01010010100101010101010101010
+110101010101
+010101010101010010111
+10110100101
+101010010101010010101010110010101
+01000000000000001010101
+10011000000001010111111111111111111010110
+0100101010101010101010101
+1000011001010001010
+1010110101
+10000000000000000010101010
+10000000000101010
+00010101010
+10110101010101010
+01100000000000000000000000000000
+1011111111111111111
